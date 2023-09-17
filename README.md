@@ -1,1 +1,1 @@
-# 2.D-VAP-2324-Kom-rek
+# 2.D-VAP-2324-Komarek
